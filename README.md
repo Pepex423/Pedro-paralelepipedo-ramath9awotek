@@ -1,1 +1,0 @@
-# Pedro-paralelepipedo-ramath9awotek
